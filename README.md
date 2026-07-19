@@ -6,3 +6,5 @@ I only use verified sources from legitimate news outlets, court proceedings or p
 Out of everything I hate the most is sexual violence against others. The fact that these crimes often go punished lightly is treating humanity as a joke. 
 
 Use this project as you need to so that you are well protected.
+
+I also highly encourage victims to speak up and to publicise / document the culprits so that everyone is aware. 
